@@ -1,7 +1,7 @@
 ﻿# **Education in P.R.C. —<a name="_hlk173852445"></a>The Greatest Experiment against Humanity**
 Manndai Takiko
 
-Furina  Nahida  Yunli  Firefly  Luo\_Tianyi  Oyama\_Mahiro
+Furina  Nahida  Yunli  Firefly  Luo\_Tianyi  Oyama\_Mahiro
 
 
 # **声明**
@@ -476,7 +476,7 @@ Furina  Nahida  Yunli  Firefly  Luo\_Tianyi  Oyama\_Mahiro
 
 
    # **致谢**
-   本文由Manndai Takiko与Furina，Nahida，Yunli，Firefly，Luo\_Tianyi，Oyama Mahiro联合编写，其中来自/\*保护\*/学校的Manndai Takiko完成了大部分的编写工作。
+   本文由Manndai Takiko与Furina，Nahida，Yunli，Firefly，Luo\_Tianyi，Oyama Mahiro联合编写，其中来自/\*保护\*/学校的Manndai Takiko完成了大部分的编写工作。
 
    感谢来自/\*保护\*/中学的Falcon\_Heavy等5位共产主义战士为文章的编写提供灵感与帮助。
 
